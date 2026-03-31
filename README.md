@@ -17,7 +17,7 @@ I help beginners earn cryptocurrency using simple mining methods and optimized r
 ---
 
 ## 🚀 Start Mining Now
-👉 **https://unmineable.edgeone.app/**
+👉 **https://www.unmineable.com/?ref=0lqw-qcab**
 
 ✔️ Mine coins like BTC, ETH, DOGE & more  
 ✔️ No complex setup  
